@@ -1,1 +1,1 @@
-# EasyShare!!
+# EasyShare!
